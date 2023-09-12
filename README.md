@@ -2,7 +2,7 @@
 
 -My name is Maria 
 
--I study in James Patrick Clarck
+-I study at James Patrick Clarck
 
 -you can add me sis @mmaria.mpa
  
