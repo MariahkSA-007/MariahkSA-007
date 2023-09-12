@@ -1,5 +1,8 @@
 ### Wassup´? 👋 you´re a lier actress, get the fuck out!
-
+-My name is Maria 
+-I study on James Patrick Clarck
+-you can add me sis @mmaria.mpa
+ 
 <!--
 **MariahkSA-007/MariahkSA-007** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
